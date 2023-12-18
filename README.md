@@ -13,5 +13,5 @@ I am a 19-year-old sophomore passionate about the intersectionality of design, b
 - Travel to Vancouver and explore the mountains ⛰️
 - Intern at a FAANGM+ company
 
-## 📫 How to reach me ...
+## 📫 I'm seeking Summer 2024 internships! How to reach me ...
 Email: zgraneta@uwo.ca
